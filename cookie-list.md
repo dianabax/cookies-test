@@ -1,4 +1,4 @@
 # Favorite cookies
-- Chocolate chip
+- Chocolate chip (Kyle likes this too!)
 - Oatmeal
 - Snickerdoodle
